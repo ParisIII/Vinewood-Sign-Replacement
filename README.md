@@ -33,4 +33,4 @@ To Stream this to your server you are REQUIRED to have the following in your str
 DO NOT RE-UPLOAD OR USE THIS MOD FOR PAID WORK. THIS IS A FREE RESOURCE FOR ALL
 ADD ME ON DISCORD FOR ANY QUESTIONS IF I DO NOT RESPOND HERE Ripley#4229
 
-Credits: Desertos#9316 & myself worked on this mod together for everyone !!
+Credits: Desertos#9316 & myself worked on this mod together for everyone !
